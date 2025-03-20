@@ -1,3 +1,0 @@
-# Crop calendar products from the research...
-### Authors: ----
-### Description:
